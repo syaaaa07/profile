@@ -34,9 +34,9 @@ Di sini orang-orang bisa melihat aktivitas coding kamu secara otomatis:
 ---
 
 ### 📫 Mari Berhubungan!
-- 📧 Email: [puan.aeesya@email.com](mailto:puan.aeesya@email.com)
+- 📧 Email: [puanaeesya@students.amikom.ac.id](mailto:puan.aeesya@students.amikom.ac.id)
 - 🔗 LinkedIn: [linkedin.com/in/puan-aeesya](https://linkedin.com/in/puan-aeesya)
-- 📸 Instagram: [@puan.aeesya](https://instagram.com/puan.aeesya)
+- 📸 Instagram: [@puanaeesyaa](https://instagram.com/puanaeesyaa)
 
 ---
 
